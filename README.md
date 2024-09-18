@@ -1,3 +1,4 @@
 # gender
 
-it/its kitten thing
+She/They Nyanbinary Catgirl
+I'm KitKat
